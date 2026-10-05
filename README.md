@@ -1,1 +1,1 @@
-Abandoned - no further development planned.
+## 📦 ARCHIVED - no further development planned.
