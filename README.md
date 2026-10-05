@@ -1,1 +1,1 @@
-Abandoned — no further development planned.
+Abandoned - no further development planned.
